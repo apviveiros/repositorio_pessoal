@@ -16,7 +16,7 @@ Você pode conferir todos os meus projetos aqui: [https://github.com/apviveiros]
 
 ## 📫 Como me encontrar  
 - LinkedIn: [https://www.linkedin.com/in/apviveiros/](https://www.linkedin.com/in/apviveiros/)  
-- E-mail: [seu-email-aqui]  
+- E-mail: [apviveiros@hotmail.com]  
 
 ---
 
